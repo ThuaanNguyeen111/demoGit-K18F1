@@ -1,7 +1,1 @@
-Sure, I'd be happy to help! "Cách quay màn hình máy tính" is Vietnamese for "How to rotation screen on computer". This query term is likely used by someone looking for tips on how to adjust the screen rotation on their computer. There are a few different ways to do this, depending on the type of computer and operating system being used. Some common methods include using the screen rotation settings in the display settings, using the keyboard shortcuts, or using third-party software.
-
-aiwdhaiwdhaoiwdhaowidhwaaaaaaaaaaaaaaaaaaaaaaaaaa
-
-ădihaodhaodhawdohdoadihaoiwdhaowidhaoidhaoidhaodhawoidh
-
-ahduawhdaiwdhaiwdhawdiahdawidhuawiduhawidhawidhawidhawiud
+#Điệp đẹp trai
